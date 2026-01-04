@@ -15,4 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 ![OIP (6)](https://github.com/user-attachments/assets/badfdfad-dfd9-447e-85bc-5ebc0520a136)
-![OIP (6)](https://github.com/user-attachments/assets/b1f8b8df-8347-4c55-a70f-dbee4ad9e111)
+![OIP (2)](https://github.com/user-attachments/assets/2eb325ab-384f-4acd-a734-6f9700bcae4d)
+![OIP (4)](https://github.com/user-attachments/assets/1da6a564-12c1-4b38-8e3d-6ff9f2942466)
+
